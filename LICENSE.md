@@ -1,4 +1,4 @@
-# 
+# elite binance futures bot Plugin | futures-arbitrage + low-frequency is the best binance futures bot, featuring futures-arbitrage and low-frequency. Smart, fast, and optimized for
 
 
 
